@@ -1,6 +1,9 @@
 # 777-Dan-Lok-Wisdom-Videos
 
-Income Producing Ways?
+Capital Definition - Investopedia 
+>   Capital is a term for financial assets, such as funds held in deposit accounts and/or funds obtained from special financing sources. ... Capital assets can include cash, cash equivalents, and marketable securities as well as manufacturing equipment, production facilities, and storage facilities.
+
+Income Producing Ways Wisdom Strategy Plan Path?
 + 1 - Earned (Education self-learning Skill Time Based)
 + 2 - Interest Income accounts borrowing debt profit (investment capital gains)
 + 3 -  Business strong people management skills
