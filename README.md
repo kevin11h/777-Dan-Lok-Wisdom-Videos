@@ -1,14 +1,14 @@
 # 777-Dan-Lok-Wisdom-Videos
 
 Income Producing Ways?
-1 - Earned (Education Skill Time Based)
-2 - Interest Income
-3 -  Business
-4 - Dividend
-5 - Rental Income (Hi-Leveraged)
-6 -  Advertising Programmer API Transaction Rate-Limited Payments Plan / subscription model
-7 - Royalty + Licensing Patent Proofing 
-
++ 1 - Earned (Education self-learning Skill Time Based)
++ 2 - Interest Income accounts borrowing debt profit (investment capital gains)
++ 3 -  Business strong people management skills
++ 4 - Dividend stock equity=early shares security
++ 5 - Rental Income (Hi-Leveraged Livability in Property)
++ 6 -  Advertising Programmer API Transaction Rate-Limited Payments Plan / subscription model
++ 7 - Royalty + Licensing Patent Proofing Intellectual Property
+> small biz, import/export, manufacturing. Even with jobs, asians in the west go into specialist roles, their own business, or into freelance roles. 
 #DanLok #Millionaires #Money
 7 Types Of Income Millionaires Have (How The Rich Make Money)
 77,233 views•Jan 14, 2020
