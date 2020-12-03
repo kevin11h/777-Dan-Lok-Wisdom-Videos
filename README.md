@@ -6,8 +6,8 @@ Income Producing Ways?
 3 -  Business
 4 - Dividend
 5 - Rental Income (Hi-Leveraged)
-6 -  Advertising
-7 - Royalty + Licensing
+6 -  Advertising Programmer API Transaction Rate-Limited Payments Plan / subscription model
+7 - Royalty + Licensing Patent Proofing 
 
 #DanLok #Millionaires #Money
 7 Types Of Income Millionaires Have (How The Rich Make Money)
@@ -296,3 +296,22 @@ Dan Lok
 12:49
 NOW PLAYING
 7 Types Of Income Millionaires Have (How The Rich Make Money)
+
+36 points
+·
+14 hours ago
+Ally
+This is why I'm prioritizing Asian men in the media, IPs, and brands I'm creating.
+Reply
+Give Award
+Share
+Report
+Save
+
+
+level 2
+ANTIMODELMINORITY
+Score hidden
+·
+3 hours ago
+Much respect to you and best of luck to your company. I have a couple of SE ASIAN stories based in America that I'd like to pitch to you. Let me know
