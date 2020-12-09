@@ -4,9 +4,9 @@
 ### 7 Interesting Income Pathways Streams Sources
 0. Earned by Hour (Wage Employee)
 1. Paid by Week or Month (Salary)
-#### Avoid Default
-1. Paid by Project (Commission Entrepreneur Salesman Distributor Distribution %)
-2. Paid by Recurring Revenue AKA Automated Subscription Service (Passive Income) PAY PER VIEW NEWSLETTER 
+#### Avoid Default - Entrepreneur Ways
+1. Paid by Project (Commission Entrepreneur Salesman SalesPerson Distributor Distribution %)
+2. Paid by Retention Recurring Revenue AKA Automated Subscription Service (Passive Income) PAY PER VIEW NEWSLETTER 
 3. Paid by Royalties Creative Credit(Royalty) PATENT INTELLECTUAL PROPERTY LEASE
 4. Rental Property Livability Income Interest Generating Income Producing Property Asset LICENSE
 5. Paid by Transaction (Revenue APIs Access AUTOPILOT project Software Product High Transaction Throughput High Volume)
