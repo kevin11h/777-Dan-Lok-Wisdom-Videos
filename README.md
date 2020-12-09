@@ -1,15 +1,15 @@
 # 777-Dan-Lok-Wisdom-Videos
-
-## Projects Path - Clear Objective GOal GOALL
+## "Apps as business 7 ABs"
+# Projects Path - Clear Objective GOal GOALL
 ### 7 Interesting Income Pathways Streams Sources
 0. Earned by Hour (Wage Employee)
 1. Paid by Week or Month (Salary)
 #### Avoid Default - Entrepreneur Ways
-1. Paid by Project (Commission Entrepreneur Salesman SalesPerson Distributor Distribution %)
-2. Paid by Retention Recurring Revenue AKA Automated Subscription Service (Passive Income) PAY PER VIEW NEWSLETTER 
-3. Paid by Royalties Creative Credit(Royalty) PATENT INTELLECTUAL PROPERTY LEASE
-4. Rental Property Livability Income Interest Generating Income Producing Property Asset LICENSE
-5. Paid by Transaction (Revenue APIs Access AUTOPILOT project Software Product High Transaction Throughput High Volume)
+1. Paid by Project (Commission Entrepreneur Salesman SalesPerson Distributor Distribution %) $1 / 1MM+ customers Charge $1 Per Person/ Help 1MM+ Persons
+2. Paid by Retention Recurring Revenue AKA Automated Subscription Service (Passive Income) PAY PER VIEW NEWSLETTER $0.01 per cent per person's objective NEW VIEW VOLATILITY (digital distractions) - NEWSLETTER
+3. Paid by Transaction (Revenue APIs Access AUTOPILOT project Software Product High Transaction Throughput High Volume) Freemium Tier $100-$1 per person per cent Transaction / Donation Variable Giving Tips Transaction Tool Tips Tier
+4. Paid by Royalties Creative Credit(Royalty) PATENT INTELLECTUAL PROPERTY LICENSE 
+5. Rental Property Livability Income Interest Generating Income Producing Property Asset LEASE
 6. INvestment INterest Early Equity Dividend Payments CAPITAL
 7. Paid by Result (Fee - Revaluation Reflection Learning)
 https://www.youtube.com/watch?v=fcPN-zF-m1U&list=TLPQMDMxMjIwMjBJG81XIp3Tvg&index=1&ab_channel=DanLok
@@ -333,3 +333,6 @@ Score hidden
 ·
 3 hours ago
 Much respect to you and best of luck to your company. I have a couple of SE ASIAN stories based in America that I'd like to pitch to you. Let me know
+
+
+![](https://i.pinimg.com/originals/75/29/d8/7529d80218adb1b624992f4278bb597b.png)
