@@ -4,7 +4,7 @@
 ### 7 Interesting Income Pathways Streams Sources
 0. Earned by Hour (Wage Employee)
 1. Paid by Week or Month (Salary)
-#### Avoid Default - Entrepreneur Ways
+#### Avoid Default - Entrepreneur Ways Wide Road to Destruction Foolish Rich Man
 1. Paid by Project (Commission Entrepreneur Salesman SalesPerson Distributor Distribution %) $1 / 1MM+ customers Charge $1 Per Person/ Help 1MM+ Persons
 2. Paid by Retention Recurring Revenue AKA Automated Subscription Service (Passive Income) PAY PER VIEW NEWSLETTER $0.01 per cent per person's objective NEW VIEW VOLATILITY (digital distractions) - NEWSLETTER
 3. Paid by Transaction (Revenue APIs Access AUTOPILOT project Software Product High Transaction Throughput High Volume) Freemium Tier $100-$1 per person per cent Transaction / Donation Variable Giving Tips Transaction Tool Tips Tier
@@ -30,6 +30,20 @@ Income Producing Ways Wisdom Strategy Plan Path?
 #DanLok #Millionaires #Money
 7 Types Of Income Millionaires Have (How The Rich Make Money)
 77,233 views•Jan 14, 2020
+Kevin Hung
+3 minutes ago (edited)
+Income Producing Ways?
+# Skills Pay the Bills / & Effort takes no Skill
+1. - Earned (Education Skill Time Based) BiWeekly Time Based
+2. - Retentional Subscription Time Based Charged Subscription Recurring Revenue
+3. - Result Pay Per Project
+4. - Transactional API Access Transaction Tips-based Tool Tips Tithes Twitch (web donations, Twitch streaming)
+5. - Rental Income (Hi-Leveraged) RentalProperty LEASE 
+6. - Interest Income Investment Capital Bonds Stock Early Equity Dividend Unitization 
+7. - Royalty Creative Credit + Intellectual Property + Licensing LICENSE
+Read more
+
+
 
 3.4K
 
@@ -99,13 +113,14 @@ Kevin Hung
 Kevin Hung
 3 minutes ago (edited)
 Income Producing Ways?
-1 - Earned (Education Skill Time Based)
-2 - Interest Income
-3 -  Business
-4 - Dividend
-5 - Rental Income (Hi-Leveraged)
-6 -  Advertising
-7 - Royalty + Licensing
+# Skills Pay the Bills / & Effort takes no Skill
+1 - Earned (Education Skill Time Based) BiWeekly Time Based
+2 - Subscription Time Based Charged Subscription Recurring Revenue
+3 - 
+4 - Transactional API Access Transaction Tips-based Tool Tips Tithes Twitch (web donations, Twitch streaming)
+5 - Rental Income (Hi-Leveraged) LEASE 
+6 - Interest Income Investment Capital Bonds Stock Early Equity Dividend Unitization 
+7 - Royalty Creative Credit + Intellectual Property + Licensing LICENSE
 Read more
 
 
