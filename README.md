@@ -1,5 +1,20 @@
 # 777-Dan-Lok-Wisdom-Videos
 
+## Projects Path 
+### 7 Interesting Income Pathways Streams Sources
++0. Earned by Hour (Wage Employee)
++1. Paid by Week or Month (Salary)
+#### Avoid Default
++1. Paid by Project (Commission Entrepreneur Salesman Distributor Distribution %)
++2. Paid by Recurring Revenue AKA Automated Subscription Service (Passive Income)
++3. Paid by Royalties Creative Credit(Royalty) LEASE
++4. Rental Property Livability Income Interest Generating Income Producing Property Asset LICENSE
++5. Paid by Transaction (Revenue APIs Acess Software Product High Transaction Throughput High Volume)
++6. Investment Interest Early Equity Dividend Payments CAPITAL
++7. Paid by Result (Fee - Revaluation Reflection Learning)
+https://www.youtube.com/watch?v=fcPN-zF-m1U&list=TLPQMDMxMjIwMjBJG81XIp3Tvg&index=1&ab_channel=DanLok
+## 
+https://www.youtube.com/watch?v=YoN1XM8SndA
 Capital Definition - Investopedia 
 >   Capital is a term for financial assets, such as funds held in deposit accounts and/or funds obtained from special financing sources. ... Capital assets can include cash, cash equivalents, and marketable securities as well as manufacturing equipment, production facilities, and storage facilities.
 
