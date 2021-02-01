@@ -358,8 +358,8 @@ Much respect to you and best of luck to your company. I have a couple of SE ASIA
 01/25/2021
 # LING'S COINSULTATION PRO BONO
 1. Lease AirbNB 2 weeks $2K
-2. High Ticket Closer Luxury Items Art, Goods, Mansion Party  (Conditional access to physical products + time schedule agenda)
-3. $2K BTC Coinquest Work Tasksmastery (Retainer Pay 1st Fee first finders fee)
+2. High Ticket Closer Luxury Items Art, Goods, Mansion Party  (Conditional access to physical products + time schedule agenda) VOLATILITY - VOLUME + VELACITY
+3. LING + SHUN $1.5K => $2K BTC Coinquest Work Tasksmastery (Retainer Pay 1st Fee first finders fee) = PRIVATE PERSONAL PROJECTS
 4. Concert Tickets (Celebrity VIP access?)
 5. Access to Equity Name Title Captable
 6. find freelance / manual coniventional work upwork
@@ -369,7 +369,6 @@ https://en.wikipedia.org/wiki/Parable_of_the_Leaven#Interpretation
 ## Save Time Summary Book
 1. Scarcity limited
 2. land physical contested  Homes Value Store
-
 
 # Less < 1-Hour Parental Wisdom Interview Dialogue
 1. ~24,000 Days work / 7,000 7K Days Rest Learn Let go Flow Grow with wisdom of God go to God
