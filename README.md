@@ -364,7 +364,7 @@ Much respect to you and best of luck to your company. I have a couple of SE ASIA
 5. Access to Equity Name Title Captable
 6. find freelance / manual coniventional work upwork
 7. ABundance = Jesus 4, 4000, 5000 Bread Miracles Elijah and flasks of faith Joseph's Sarah's tithe 3 “Hurry! Get three large measures of your best flour, knead it into dough Joseph Tsai's tithe prosperity in times financial famine
-https://en.wikipedia.org/wiki/Parable_of_the_Leaven#Interpretation
+
 # Less than < 1-Day  Wisdom
 ## Save Time Summary Book
 1. Scarcity limited
@@ -389,4 +389,6 @@ https://en.wikipedia.org/wiki/Parable_of_the_Leaven#Interpretation
 # Donations
 # TITHTES
 
-https://www.josephprince.com/sermon-notes/gods-plan-to-prosper-you-in-the-end-times#
+# 100X ROI Returns Rate 1000X 1KX God the Lord rewards a thousand times ea. tithe
+## https://www.josephprince.com/sermon-notes/gods-plan-to-prosper-you-in-the-end-times
+## https://en.wikipedia.org/wiki/Parable_of_the_Leaven#Interpretation
