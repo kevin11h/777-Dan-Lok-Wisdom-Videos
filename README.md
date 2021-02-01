@@ -380,10 +380,13 @@ https://en.wikipedia.org/wiki/Parable_of_the_Leaven#Interpretation
 5. Apprenticeship
 6. Monthly Mastermind group access tickets SUBSCRIPTION RECURRING REVENUE
 7. ?
-# ALBERT AZAT JOHN LEE 
+# 4 Minor Profit Prophets Evangelists ALBERT AZAT JOHN LEE ML Malachi 3 Moneitization Tithe
 
-1. Subscription Games Livestream
-2. Montly Mastermind Access Subscription Fee
-3. Access videos Subscription John Lee
+1. Subscription Games Livestream Fans Only Access VIP # Living fun eduetertainment
+2. Montly Mastermind Access Subscription Fee Monthly Mastermind group / insiders club Learning Mentoring Monthly Fee
+3. Access Videos Subscription Learning John Lee
+4. Machine Learning Models Predictions Calculations Decisions Product Recommendations Ads Subscription Charge (Wine Golf Learning fee)
+# Donations
+# TITHTES
 
-Donations
+https://www.josephprince.com/sermon-notes/gods-plan-to-prosper-you-in-the-end-times#
