@@ -6,8 +6,9 @@
 0. Earned by Hour (Wage Employee)
 1. Paid by Week or Month (Salary)
 #### Avoid Default - Entrepreneur Ways Wide Road to Destruction Foolish Rich Man
-1. Paid by Project (Commission Entrepreneur Salesman SalesPerson Distributor Distribution %) $1 / 1MM+ customers Charge $1 Per Person/ Help 1MM+ Persons
-2. Paid by Retention Recurring Revenue AKA Automated Subscription Service (Passive Income) PAY PER VIEW NEWSLETTER $0.01 per cent per person's objective NEW VIEW VOLATILITY (digital distractions) - NEWSLETTER Subscription
+0. Paid by Project (Commission Entrepreneur Salesman SalesPerson Distributor Distribution %) $1 / 1MM+ customers Charge $1 Per Person/ Help 1MM+ Persons
+1. Paid by CLICKAFFILIATE LINK REFERRAL REWARDS
+2. Paid by Retention Recurring Revenue AKA Automated Subscription Service (Passive Income) PAY PER VIEW NEWSLETTER $0.01 per cent per person's objective NEW VIEW VOLATILITY (digital distractions) - NEWSLETTER Subscription RECURRING REVENUE = SUBSCRIPTION AUTOMATIC
 3. Paid by Transaction (Revenue APIs Access AUTOPILOT project Software Product High Transaction Throughput High Volume) Freemium Tier $100-$1 per person per cent Transaction / Donation Variable Giving Tips Transaction Tool Tips Tier High Ticket Items Closer HTC
 4. Paid by Royalties Creative Credit(Royalty) PATENT INTELLECTUAL PROPERTY LICENSE 
 5. Rental Property Livability Income Interest Generating Income Producing Property Asset LEASE
@@ -53,21 +54,9 @@ Income Producing Ways?
 7. - Royalty Creative Credit + Intellectual Property + Licensing LICENSE
 Read more
 
-
-
-3.4K
-
-53
-
-SHARE
-
-SAVE
-
-
 Dan Lok
 3.24M subscribers
-JOIN
-SUBSCRIBED
+JOIN SUBSCRIBED
 
 If You Want To Start Creating One Of The 7 Types Of Income Millionaires Have But Don’t Know How To Get Started, Click Here To Apply For A Private Call With One Of Dan’s High-Income Consultants: http://7incomes.danlok.link
 
