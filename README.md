@@ -1,4 +1,5 @@
-# 777-Dan-Lok-Wisdom-Videos
+# 7 Figure Income Numerical Nous Quantitative
+## 777-Dan-Lok-Wisdom-Videos
 ## "Apps as business 7 ABs"
 # Projects Path - Clear Objective GOal GOALL
 ### 7 Interesting Income Pathways Streams Sources
@@ -6,14 +7,15 @@
 1. Paid by Week or Month (Salary)
 #### Avoid Default - Entrepreneur Ways Wide Road to Destruction Foolish Rich Man
 1. Paid by Project (Commission Entrepreneur Salesman SalesPerson Distributor Distribution %) $1 / 1MM+ customers Charge $1 Per Person/ Help 1MM+ Persons
-2. Paid by Retention Recurring Revenue AKA Automated Subscription Service (Passive Income) PAY PER VIEW NEWSLETTER $0.01 per cent per person's objective NEW VIEW VOLATILITY (digital distractions) - NEWSLETTER
-3. Paid by Transaction (Revenue APIs Access AUTOPILOT project Software Product High Transaction Throughput High Volume) Freemium Tier $100-$1 per person per cent Transaction / Donation Variable Giving Tips Transaction Tool Tips Tier
+2. Paid by Retention Recurring Revenue AKA Automated Subscription Service (Passive Income) PAY PER VIEW NEWSLETTER $0.01 per cent per person's objective NEW VIEW VOLATILITY (digital distractions) - NEWSLETTER Subscription
+3. Paid by Transaction (Revenue APIs Access AUTOPILOT project Software Product High Transaction Throughput High Volume) Freemium Tier $100-$1 per person per cent Transaction / Donation Variable Giving Tips Transaction Tool Tips Tier High Ticket Items Closer HTC
 4. Paid by Royalties Creative Credit(Royalty) PATENT INTELLECTUAL PROPERTY LICENSE 
 5. Rental Property Livability Income Interest Generating Income Producing Property Asset LEASE
 6. INvestment INterest Early Equity Dividend Payments CAPITAL
 7. Paid by Result (Fee - Revaluation Reflection Learning)
 https://www.youtube.com/watch?v=fcPN-zF-m1U&list=TLPQMDMxMjIwMjBJG81XIp3Tvg&index=1&ab_channel=DanLok
-## 
+## 8. Donations
+## 9. Return on Investment Financial Instruments Coinstruments Patents Design IP Active Investing Precious metals contracts crypto
 https://www.youtube.com/watch?v=YoN1XM8SndA
 Capital Definition - Investopedia 
 >   Capital is a term for financial assets, such as funds held in deposit accounts and/or funds obtained from special financing sources. ... Capital assets can include cash, cash equivalents, and marketable securities as well as manufacturing equipment, production facilities, and storage facilities.
@@ -27,12 +29,20 @@ Income Producing Ways Wisdom Strategy Plan Path?
 + 6 -  Advertising Programmer API Transaction Rate-Limited Payments Plan / subscription model
 + 7 - Royalty + Licensing Patent Proofing Intellectual Property
 > small biz, import/export, manufacturing. Even with jobs, asians in the west go into specialist roles, their own business, or into freelance roles. 
++ 8 - Donations, Nonprofit MOtif: 1A. Educational Institution Certificates Coincers 2. Religious Spiritual 3. Political
++ 9 - ROI return on Investment instruments institutions
 #DanLok #Millionaires #Money
 7 Types Of Income Millionaires Have (How The Rich Make Money)
 77,233 views•Jan 14, 2020
 Kevin Hung
 3 minutes ago (edited)
 Income Producing Ways?
+# 3 High Income High Leverage Skills
+### 1. HTC High Ticket Closing
+### 2. Content writing
+### 3. 
+![](https://growthlab.com/wp-content/uploads/2018/02/pasted-image-0-22-717x1024.png)
+
 # Skills Pay the Bills / & Effort takes no Skill
 1. - Earned (Education Skill Time Based) BiWeekly Time Based
 2. - Retentional Subscription Time Based Charged Subscription Recurring Revenue
@@ -356,3 +366,36 @@ Much respect to you and best of luck to your company. I have a couple of SE ASIA
 
 ![](https://i.imgur.com/gHB4h5I.png)
  
+01/25/2021
+# LING'S COINSULTATION PRO BONO
+1. Lease AirbNB 2 weeks $2K
+2. High Ticket Closer Luxury Items Art, Goods, Mansion Party  (Conditional access to physical products + time schedule agenda)
+3. $2K BTC Coinquest Work Tasksmastery (Retainer Pay 1st Fee first finders fee)
+4. Concert Tickets (Celebrity VIP access?)
+5. Access to Equity Name Title Captable
+6. find freelance / manual coniventional work upwork
+7. ABundance = Jesus 4, 4000, 5000 Bread Miracles Elijah and flasks of faith Joseph's Sarah's tithe 3 “Hurry! Get three large measures of your best flour, knead it into dough Joseph Tsai's tithe prosperity in times financial famine
+https://en.wikipedia.org/wiki/Parable_of_the_Leaven#Interpretation
+# Less than < 1-Day  Wisdom
+## Save Time Summary Book
+1. Scarcity limited
+2. land physical contested  Homes Value Store
+
+
+# Less < 1-Hour Parental Wisdom Interview Dialogue
+1. ~24,000 Days work / 7,000 7K Days Rest Learn Let go Flow Grow with wisdom of God go to God
+# Mystery of Azat?
+1. Live Training
+2. Webinar
+3. Online Course
+4. 1-1 Coaching
+5. Apprenticeship
+6. Monthly Mastermind group access tickets SUBSCRIPTION RECURRING REVENUE
+7. ?
+# ALBERT AZAT JOHN LEE 
+
+1. Subscription Games Livestream
+2. Montly Mastermind Access Subscription Fee
+3. Access videos Subscription John Lee
+
+Donations
