@@ -421,7 +421,7 @@ a. coinvestments investment PROducts financial investment coinstruments
 ![](https://stuffjeffreads.files.wordpress.com/2016/04/chinesewagonwheel.jpg?w=584)
 
 
-Cups , CLOCKS- Car-wheels, Container, π
+Cups , CLOTHES CLOCKS- Car-wheels, Container, π CHRIST
  
 
 ![](https://upload.wikimedia.org/wikipedia/commons/thumb/2/24/Cáliz_de_Doña-Urraca.jpg/225px-Cáliz_de_Doña-Urraca.jpg)
@@ -435,3 +435,4 @@ $179.99
 Best Buy
 
 ![](https://encrypted-tbn0.gstatic.com/shopping?q=tbn:ANd9GcQpC1IhaYP-6zopD3PbIYR9KPTiLdZlJ889rVu8FfXU_QYY_HeTKHXZWsXGyJhw&usqp=CAc)
+# Genesis 3 Clothed in Christ https://web.archive.org/web/20200803143641/http://truthandtidings.com/1998/02/clothing-in-genesis/
