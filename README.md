@@ -287,13 +287,10 @@ REPLY
 
 Steve Sonny
 10 months ago (edited)
-Hey Dan I stumbled onto your channel and now I'm hooked. Keep up the excellent work. 👊
+Hey Dan I stumbled onto your channel and now I'm hooked. Keep up the excellent work. 
 
 3
-
-REPLY
-
-Nico Moreno
+ 
 10 months ago
 Thanks so much for the awesome video Dan 🔥 This will definitely help me Grow my Business and Become Wealthy!! Keep it up! 💯💯🙌
 
@@ -425,6 +422,6 @@ a. coinvestments investment PROducts financial investment coinstruments
 
 
 Cups , Car-wheels, Container, π
+ 
 
-![](https://raw.githubusercontent.com/kevin11hg/Mastering-Finance-in-Python-Language-Jupyter-Notebook/main/wheel.png)
 ![](https://upload.wikimedia.org/wikipedia/commons/thumb/2/24/Cáliz_de_Doña-Urraca.jpg/225px-Cáliz_de_Doña-Urraca.jpg)
