@@ -1,4 +1,5 @@
-# 7 Figure Income Numerical Nous Quantitative
+# 0 $\inf$ TITHE TITHING 10% FIRST FRUITS OFFERINGS PRAYER -> PROVISION + PROTECTION = GIVING LIVING LIVE 
+# 7 Figure Income Numerical Nous Quantitative Qualitative Generative Creative Constructive Productive Protective Objective Subjective  
 ## 777-Dan-Lok-Wisdom-Videos
 ## "Apps as business 7 ABs"
 # Projects Path - Clear Objective GOal GOALL
