@@ -1,5 +1,5 @@
 # 0 -> ∞ TITHE TITHING 10% FIRST FRUITS OFFERINGS PRAYER -> PROVISION + PROTECTION = GIVING LIVING LIVE 
-# 7 Figure Income Numerical Nous Automative Quantitative Qualitative (Selective) Generative Creative Constructive Corrective Productive Protective Projective Objective Subjective Collaborative Directive Positive Instructive Automative Positive
+# 7 Figure Income Numerical Nous Automative Quantitative Qualitative (Selective) Generative Creative Constructive Corrective Productive Protective Projective Objective Subjective Collaborative Directive Positive Instructive Automative Positive Predictive 
 ## 777-Dan-Lok-Wisdom-Videos
 ## "Apps as business 7 ABs"
 # Projects Path - Clear Objective GOal GOALL
@@ -16,7 +16,7 @@
 6. INvestment INterest Early Equity Dividend Payments CAPITAL
 7. Paid by Result (Fee - Revaluation Reflection Learning)
 https://www.youtube.com/watch?v=fcPN-zF-m1U&list=TLPQMDMxMjIwMjBJG81XIp3Tvg&index=1&ab_channel=DanLok
-## 8. Donations
+## 8. Donations DIRECTIVE DIRECT DONATIONS DO DIRECTLY
 ## 9. Return on Investment Financial Instruments Coinstruments Patents Design IP Active Investing Precious metals contracts crypto
 https://www.youtube.com/watch?v=YoN1XM8SndA
 Capital Definition - Investopedia 
@@ -263,13 +263,7 @@ Raymond Chew
 10 months ago
 Reminded me of another video with Andrei that talked about intellectual property as investment vehicle
 
-2
-
-REPLY
-
-Farooq Syed
-10 months ago
-Dan Lok you’re videos are awesome! You’ve inspired me to finally start my own Vlog!
+2 
 
 4
 
@@ -379,8 +373,20 @@ Much respect to you and best of luck to your company. I have a couple of SE ASIA
 3. Online Course
 4. 1-1 Coaching
 5. Apprenticeship
-6. Monthly Mastermind group access tickets SUBSCRIPTION RECURRING REVENUE
+6. Monthly Mastermind group access tickets SUBSCRIPTION RECURRING REVENUE VIDEO SUBSCRIPTION
 7. ?
+
+0. TITHING TITHE TO 2 GIVE 2 GOODWILL DIRECT DONATIONS ticket closing cash
+1. MATH-EMATICS ANDREW YANG MATH -> MOVE -> money. Cryptocurrency MARKET MATHEMETAICS
+a. coinvestments investment PROducts financial investment coinstruments
+
+# Amazon Marketplace
+1. KDP Direct Publishing A Creative B Content C Copy Writing
+2. Design Clothing Christian Clothing Hats T-shirts
+3. Delivery Money Movement Sending Shipping SENDING
+4. PRODUCTS SELLING
+5. SOFTWARE APPS ALEXA APP 
+
 # 4 Minor Profit Prophets Evangelists ALBERT AZAT JOHN LEE ML Malachi 3 Moneitization Tithe
 ## API @MEMBERLY 
 1. Subscription Games Livestream Fans Only Access VIP # Living fun eduetertainment
@@ -394,3 +400,4 @@ Much respect to you and best of luck to your company. I have a couple of SE ASIA
 ## Joseph Tsai
 ## https://www.josephprince.com/sermon-notes/gods-plan-to-prosper-you-in-the-end-times
 ## https://en.wikipedia.org/wiki/Parable_of_the_Leaven#Interpretation
+
