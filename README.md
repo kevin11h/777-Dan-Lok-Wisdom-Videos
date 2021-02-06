@@ -405,12 +405,19 @@ a. coinvestments investment PROducts financial investment coinstruments
 # Π π Chapter 11 Tao Te Ching PRODUCTS CONTAINERS
 ## Automative 
 三十輻共一轂.
+
 當其無, 有車之用.
+
 埏埴以為器.
+
 當其無有器之用.
+
 鑿戶牖以為室.
+
 當其無, 有室之用.
+
 故有之以為利.
+
 無之以為用. 
 -  Chinese characters, Tao Te Ching, Chapter 11    
 
