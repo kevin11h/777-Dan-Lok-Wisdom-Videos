@@ -426,5 +426,5 @@ a. coinvestments investment PROducts financial investment coinstruments
 
 Cups , Car-wheels, Container, π
 
-
+![](https://raw.githubusercontent.com/kevin11hg/Mastering-Finance-in-Python-Language-Jupyter-Notebook/main/wheel.png)
 ![](https://upload.wikimedia.org/wikipedia/commons/thumb/2/24/Cáliz_de_Doña-Urraca.jpg/225px-Cáliz_de_Doña-Urraca.jpg)
