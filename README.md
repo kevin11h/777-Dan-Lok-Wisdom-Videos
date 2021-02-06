@@ -401,3 +401,18 @@ a. coinvestments investment PROducts financial investment coinstruments
 ## https://www.josephprince.com/sermon-notes/gods-plan-to-prosper-you-in-the-end-times
 ## https://en.wikipedia.org/wiki/Parable_of_the_Leaven#Interpretation
 
+
+# Chapter 11 Tao Te Ching PRODUCTS CONTAINERS
+## Automative 
+三十輻共一轂.
+當其無, 有車之用.
+埏埴以為器.
+當其無有器之用.
+鑿戶牖以為室.
+當其無, 有室之用.
+故有之以為利.
+無之以為用. 
+-  Chinese characters, Tao Te Ching, Chapter 11    
+
+
+![](https://stuffjeffreads.files.wordpress.com/2016/04/chinesewagonwheel.jpg?w=584)
