@@ -388,8 +388,9 @@ Much respect to you and best of luck to your company. I have a couple of SE ASIA
 3. Access Videos Subscription Learning John Lee
 4. Machine Learning Models Predictions Calculations Decisions Product Recommendations Ads Subscription Charge (Wine Golf Learning fee)
 # Donations
-# TITHTES
-
+# TITHTES Tithings TitheList BizList TITULAR NOMINAL GDP PRODUCT TITULAR BRAND BUILDING
+## BizModels.list-ings
 # 100X ROI Returns Rate 1000X 1KX God the Lord rewards a thousand times ea. tithe
+## Joseph Tsai
 ## https://www.josephprince.com/sermon-notes/gods-plan-to-prosper-you-in-the-end-times
 ## https://en.wikipedia.org/wiki/Parable_of_the_Leaven#Interpretation
