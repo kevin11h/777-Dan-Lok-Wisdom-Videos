@@ -1,5 +1,5 @@
 # 0 -> ∞ TITHE TITHING 10% FIRST FRUITS OFFERINGS PRAYER -> PROVISION + PROTECTION = GIVING LIVING LIVE 
-# 7 Figure Income Numerical Nous Automative Quantitative Qualitative (Selective) Generative Creative Constructive Corrective Productive Protective Projective Objective Subjective Collaborative Directive Positive Instructive Automative Positive Predictive 
+# 7 Figure Income Numerical Nous Automative Quantitative Qualitative (Selective) Generative Creative Constructive Corrective Productive Protective Projective Objective Subjective Collaborative Directive Positive Instructive Automative Positive Predictive Meditative Contemplative
 ## 777-Dan-Lok-Wisdom-Videos
 ## "Apps as business 7 ABs"
 # Projects Path - Clear Objective GOal GOALL
@@ -439,5 +439,7 @@ https://www.youtube.com/watch?v=jmNdho2svuc&ab_channel=DanLok
 # Genesis 3 Clothed in Christ https://web.archive.org/web/20200803143641/http://truthandtidings.com/1998/02/clothing-in-genesis/
 
 ![](https://yangprints.com/media/Posters/thumb/yang_qrdonate200.jpg)
+
 http://joniandfriends.org/store
+
 https://twitter.com/BoostVC?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor
