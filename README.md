@@ -434,6 +434,10 @@ BACKPACKS
 Samsonite - Gridlok Backpack for 17" Laptop - Dark Night
 $179.99
 Best Buy
-
+https://www.youtube.com/watch?v=jmNdho2svuc&ab_channel=DanLok
 ![](https://encrypted-tbn0.gstatic.com/shopping?q=tbn:ANd9GcQpC1IhaYP-6zopD3PbIYR9KPTiLdZlJ889rVu8FfXU_QYY_HeTKHXZWsXGyJhw&usqp=CAc)
 # Genesis 3 Clothed in Christ https://web.archive.org/web/20200803143641/http://truthandtidings.com/1998/02/clothing-in-genesis/
+
+![](https://yangprints.com/media/Posters/thumb/yang_qrdonate200.jpg)
+http://joniandfriends.org/store
+https://twitter.com/BoostVC?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor
