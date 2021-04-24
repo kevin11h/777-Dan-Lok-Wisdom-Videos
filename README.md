@@ -1,6 +1,6 @@
 # 0 -> ∞ TITHE TITHING 10% FIRST FRUITS OFFERINGS PRAYER -> PROVISION + PROTECTION = GIVING LIVING LIVE 
 # 7 Figure Income Numerical Nous Automative Quantitative Qualitative (Selective) Generative Creative Constructive Corrective Productive Protective Projective Objective Subjective Collaborative Directive Positive Instructive Automative Positive Predictive Meditative Contemplative
-## 777-Dan-Lok-Wisdom-Videos
+## 777-Dan-Lok-Wisdom-Videos https://www.youtube.com/watch?v=fcPN-zF-m1U&list=TLPQMDMxMjIwMjBJG81XIp3Tvg&index=1&ab_channel=DanLok
 ## "Apps as business 7 ABs"
 # Projects Path - Clear Objective GOal GOALL
 ### 7 Interesting Income Pathways Streams Sources
