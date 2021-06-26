@@ -443,3 +443,57 @@ https://www.youtube.com/watch?v=jmNdho2svuc&ab_channel=DanLok
 http://joniandfriends.org/store
 
 https://twitter.com/BoostVC?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor
+
+
+# Investment Subscription Strategic UBI Network
+
+# 1. DONATIONS DIRECT DIGITAL DIVIDENDS D3 DATA PRODUCTS
+# 2. INVESTMENT INTERESTS ATTENTION ACTIVITY INCREASING INVESTMENT INTERACTIVITY
+# 3. SUBSCRIPTION "SERVICE" MAAP MAAP = MONEY AS PRODUCT recurring revenue # UBI Wallet
+# 4. MERCHANDISE MULTIPLY 8X MULTIPLIER 10X $40BnX
+# 5. PRODUCTS DIGITAL DATA PRODUCTS INFORMATION PRODUCTS
+# 6. LEASE LENDER / RENTAL ROYALTY + CREATIVE CREDITS B1SA CAPITAL ASSETS PROVIDER OWNER OF PROPERTY MANAGEMENT
+# 7.1 PAY PER PAGE
+# 7.2 PAY PER CLICK affiliate links networking advertising digitla marketing
+# 7.3 PAY PER TX transaction
+
+
+
+
+
+
+
+
+
+
+
+BACKPACKS
+
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/4/46/Clock_Tower_from_Su_Song%27s_Book_desmear.JPG/220px-Clock_Tower_from_Su_Song%27s_Book_desmear.JPG)
+
+Samsonite - Gridlok Backpack for 17" Laptop - Dark Night
+$179.99
+Best Buy
+https://www.youtube.com/watch?v=jmNdho2svuc&ab_channel=DanLok
+![](https://encrypted-tbn0.gstatic.com/shopping?q=tbn:ANd9GcQpC1IhaYP-6zopD3PbIYR9KPTiLdZlJ889rVu8FfXU_QYY_HeTKHXZWsXGyJhw&usqp=CAc)
+# Genesis 3 Clothed in Christ https://web.archive.org/web/20200803143641/http://truthandtidings.com/1998/02/clothing-in-genesis/
+
+![](https://yangprints.com/media/Posters/thumb/yang_qrdonate200.jpg)
+
+http://joniandfriends.org/store
+
+https://twitter.com/BoostVC?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor
+
+
+
+# Investment Subscription Strategic UBI Network
+
+# 1. DONATIONS DIRECT DIGITAL DIVIDENDS D3 DATA PRODUCTS
+# 2. INVESTMENT INTERESTS ATTENTION ACTIVITY INCREASING INVESTMENT INTERACTIVITY
+# 3. SUBSCRIPTION "SERVICE" MAAP MAAP = MONEY AS PRODUCT recurring revenue # UBI Wallet
+# 4. MERCHANDISE MULTIPLY 8X MULTIPLIER 10X $40BnX
+# 5. PRODUCTS DIGITAL DATA PRODUCTS INFORMATION PRODUCTS
+# 6. LEASE LENDER / RENTAL ROYALTY + CREATIVE CREDITS B1SA CAPITAL ASSETS PROVIDER OWNER OF PROPERTY MANAGEMENT
+# 7.1 PAY PER PAGE
+# 7.2 PAY PER CLICK affiliate links networking advertising digitla marketing
+# 7.3 PAY PER TX transaction
